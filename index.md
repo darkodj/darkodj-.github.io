@@ -1,4 +1,4 @@
-# Dobrodošli na stranucu mojih projekata 
+# Dobrodošli na stranicu mojih projekata =)
 
 
 Za sata je prazna ali uskoro će biti bolje! :)
